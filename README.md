@@ -2,8 +2,7 @@
 
 
 
-https://solutionsreview.com/business-intelligence/files/2023/05/Data-Science-Salary-v2-1.jpg
-
+![image](https://github.com/user-attachments/assets/eacf19e8-1e8f-4a4a-808c-1cdb85bc3562)
 
 
 
